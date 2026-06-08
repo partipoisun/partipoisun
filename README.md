@@ -1,20 +1,26 @@
-╭──────────. ִ ࣪ ⋆ ೀ ─╮ VIKTOR ᯓ.ᐟ ╰─ ִ ࣪ ⋆ ೀ ──────────╯
+━━★ 𐔌 . ⋮ Vιƙƚσɾ ₊ ꒱ ⋆.˚
 
-"At the end of the world or the last thing I see you are never coming home, never coming home
+★━━━━━━━━━━━━━━━━★
 
-Never coming home, never coming home
+Dσɳ'ƚ ɳҽҽԃ ƚԋҽ ʂყʂƚҽɱ
 
-And all the things that you never ever told me and all the smiles that are ever gonna haunt me
+Wҽ ƈαɳ ʅҽαʋҽ ιƚ ιϝ ɯҽ ƚɾყ
 
-Never coming home, never coming home
+Sԋσσƚ υρ ҽʋҽɾყƚԋιɳɠ ɯҽ ʂҽҽ
 
+Aɳԃ ɯҽ'ʅʅ ϝιɳԃ ιƚ σɳ ƚԋҽ ɯαʅʅ
 
-Could I? Should I?
+I ԋσρҽ ყσυ ԃιҽ
 
-And all the wounds that are ever gonna scar me
+Mαɳιρυʅαƚισɳ
 
-For all the ghosts that are never gonna"
+Jυʂƚ ƚσ ϝσɾɱ αɳ αʅιႦι
 
+Yσυ'ɾҽ ƚԋҽ σɳҽ ƚԋαƚ'ʂ ɾιɠԋƚ ϝσɾ ɱҽ
+
+Aɳԃ ιϝ ԋҽαʋҽɳ ɯαɳƚʂ ƚσ ƚαƙҽ υʂ ƚԋҽყ ƈαɳ ƚɾყ
+
+★━━━━━━━━━━━━━━━━★
 
 <img width="337" height="342" alt="image" src="https://github.com/user-attachments/assets/c07ff32b-9f7b-460b-8389-d0e5550eeb4f" />
 
