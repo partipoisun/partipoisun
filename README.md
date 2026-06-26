@@ -2,27 +2,18 @@
 
 ★━━━━━━━━━━━━━━━━★
 
-Long ago
+Well, are you ready, Ray? 
 
-Just like the Hearse you die to get in again
+Yeah
 
-We are so far from you
+How about you, Frank?
 
-Burning on
+Oh, I'm there, baby
 
-Just like the match you strike to incinerate
+How about you, Mikey?
 
-The lives of everyone you know
-
-And what's the worst you take
-
-From every heart you break?
-
-And like the blade you'll stain
-
-Well, I've been holding on tonight
+Fuckin' ready
 
 ★━━━━━━━━━━━━━━━━★
 
-<img width="337" height="342" alt="image" src="https://github.com/user-attachments/assets/c07ff32b-9f7b-460b-8389-d0e5550eeb4f" />
-
+<img width="720" height="403" alt="image" src="https://github.com/user-attachments/assets/da1c7a27-f300-4125-9dfa-5919ec3b8ce3" />
